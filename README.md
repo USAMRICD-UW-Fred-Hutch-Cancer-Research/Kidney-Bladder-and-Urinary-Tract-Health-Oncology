@@ -66,4 +66,4 @@ The success of these protocols in reducing surgical necessity contributed to the
 Digital Resources
 -----------------
 
--   **Official Website**: [https://virustc.com](https://www.google.com/search?q=https://virustc.com&authuser=1)
+-   **Official Website**: [https://virustreatmentcenters.com](https://virustreatmentcenters.com)

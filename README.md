@@ -67,5 +67,3 @@ Digital Resources
 -----------------
 
 -   **Official Website**: [https://virustc.com](https://www.google.com/search?q=https://virustc.com&authuser=1)
-
--   **Configuration and Support**: <https://configserver.shop>
